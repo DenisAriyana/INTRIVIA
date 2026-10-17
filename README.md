@@ -10,3 +10,6 @@ Seneng banget bisa jadi bagian dari INTRIVIA 2026 dan semangat untuk kita
 
 ## Kesan Pesan Cluster 17 Sejauh Ini 
 Cluster solid keren sukses selalu
+
+## Harapan Kuliah 
+Astungkara aku sukses!
